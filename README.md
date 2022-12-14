@@ -12,7 +12,7 @@ Luana Rodrigues de Oliveira de Macedo foi a responsável por criar as interfaces
 
 Franquislaine Reis Pereira Cunha é responsável por apresentar o aplicativo na feira de inovação e contribuiu com ideias para esse projeto.;
 
-Isabela Larissa Corrêa Carvalho participou das reuniões, contribuiu com ideias para esse projeto.
+Isabela Larissa Corrêa Carvalho  e Carlos Esuardo Duarte Baptista participou das reuniões, contribuiu com ideias para esse projeto.
 
 Gestão de Marketing:
 
